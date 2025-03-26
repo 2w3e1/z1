@@ -1,0 +1,7 @@
+# Hunter Assassin v2.009 Mod APK
+
+**Hunter Assassin** is an action game developed by Ruby Game Studio for Android devices. This studio has a solid track record of releasing successful games for gamers, with titles like **Gym Flip** being notable examples. **Hunter Assassin** has also made its mark, becoming one of the most popular games on the Android market with over 10 million installations!
+
+If you're looking to try out a new game, you definitely shouldn't miss **Hunter Assassin**. The gameplay is quite simple, with straightforward mechanics. The game is structured in levels, where your main task is to locate and eliminate enemies in each stage. Equipped only with a knife, you must stealthily approach your enemies from behind and execute surprise attacks to take them down quietly.
+
+As you progress through the levels, you'll encounter various challenges that require strategy and precision. The thrill of sneaking up on enemies and eliminating them without being detected keeps the gameplay engaging and addictive. With its easy-to-learn controls and increasingly difficult stages, **Hunter Assassin** offers a compelling experience for fans of action games. Get ready to put your skills to the test in a world filled with stealth and strategy!

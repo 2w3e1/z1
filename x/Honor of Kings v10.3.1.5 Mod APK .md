@@ -1,0 +1,9 @@
+# Honor of Kings v10.3.1.5 Mod APK
+
+**Honor of Kings** is an exciting MOBA (Multiplayer Online Battle Arena) and strategic game with stunning graphics and addictive gameplay, developed by Tencent Timi and published on Google Play by Level Infinite. This game stands out in the mobile gaming landscape, especially for those who enjoy strategy-based titles.
+
+Looking back at the history of strategic games, it's clear that the genre gained significant popularity with titles like **Crusader Kings**, **Warcraft**, and **Command & Conquer** which were introduced years ago. The immense popularity of these games led many developers to create various mods and maps based on them, often incorporating elements of those classic titles into new experiences. One of the most popular maps can be found in **Warcraft**, where two teams of five players compete against each other. This map gained such popularity that it has inspired numerous games in the same style, now commonly recognized as MOBA games, with **DOTA** being one of the most notable examples.
+
+Since the developers of DOTA never released a mobile version, games like **Honor of Kings** have become key players in filling that void for mobile gamers. **Honor of Kings** incorporates MOBA elements such as character selection, team strategy, and real-time battles, offering players an engaging and competitive experience. 
+
+With its vibrant characters, diverse gameplay modes, and a strong emphasis on teamwork, **Honor of Kings** has drawn millions of players globally, establishing itself as a leader in the mobile gaming market. Whether you're a newcomer to the genre or a seasoned player, **Honor of Kings** provides a rich environment for both competitive play and enjoyment.
