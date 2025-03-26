@@ -1,0 +1,3 @@
+# Fight Legends Mortal Fighting Mod APK 
+
+Fight Legends: Mortal Fighting is an entertaining, well-crafted fighting game by the Spanish studio Dark Curry, available for free on Android with in-app purchases. This role-playing game focuses on epic one-on-one battles between legendary fighters, heroes, and knights. For the first time among all Iranian sites, Farsroid proudly presents a comprehensive review and offers the latest version for free and tested, right after its Google Play release. Tailored for fans of action RPGs with a knightly theme, the game offers a unique experience where players can customize their fighter’s appearance—including facial features, hair, and skin tone—right from the start, making it appealing to a specific audience.
